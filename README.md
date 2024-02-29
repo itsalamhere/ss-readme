@@ -1,4 +1,4 @@
-for StudyStream users..
+for [StudyStream](https://app.studystream.live/) users..
 # *Welcome!* ✨🙌
 
 There's a lot that I wanna tell ya, but I just can't fit it out in the SS bio. So I'm making a tiiiiny bit of website instead. :D
