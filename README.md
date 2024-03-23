@@ -28,9 +28,9 @@ Personally, rn I'm on a space of figuring out relationships with myself more. Fe
 
   * `[❗]` **I'll be available to reply when I read the chat**. This way I don't forget it in case I got caught up on the studies--I've been on the receiving end and I know how it feels, so I'm letting you know beforehand. Hold your horses if you're feeling a bit concerned of this, okay? I may get caught up into the studies for up to weeks, but I'll try my best to send the messages back to you 📨
  
-  * `[👥]` **I'll follow people that I feel we've chatted well with.** We could have a same interest, or passion, getting curious with each other, or just simple values and likings in general. I'd be more comfortable to follow when we have a thing or two in common. OR some people that don't accept messages due to privacy settings but I find them interesting, I could try my shot, maybe we could go well, who knows?
-  * 
-  * `[👥]` ***21/03:*** These weeks I've seen a category of people who may be really busy with their studies but still wanna vibe well (study together) on the focus room. So I decided to follow these people too, maybe we can support each other through the feeds--it may not be much, but hey it's a good start. If you see this, thanks for getting along on the journey, and let's reach our own goals together, shall we? ^^
+  * `[👥]` **I'm more comfortable to follow people that we've chatted well with.** We could have a same interest, or passion, getting curious with each other, or just simple values and likings in general. OR some people that don't accept messages due to privacy settings but I find them interesting, I could try my shot, maybe things could go well, who knows?
+
+  * `[👥]` ***21/03:*** These weeks I've seen a category of people who may be really busy with their studies but still wanna vibe well (study together) on the focus room. So I decided to follow these people too. Maybe we can support each other through the feeds--it may not be much, but hey it's a good start. If you see this, thanks for getting along on the journey, and let's reach our own goals together, shall we? ^^
 
 * `[📍]` As in interest, I feel like most of them are pretty niche (I like to explore and experiment with stuffs, i guess), These are some that I could think of for now:
 
